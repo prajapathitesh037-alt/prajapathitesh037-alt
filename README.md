@@ -1,5 +1,4 @@
 # 💫 Hi 👋, I'm Hitesh Prajapat
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
 
 Email Me 👉 ✉️ **prajapathitesh@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
